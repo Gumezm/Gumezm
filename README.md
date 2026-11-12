@@ -1,1 +1,1 @@
-# Hi there, I'm Gumezm 
+# Hi, I'm Gumezm.
