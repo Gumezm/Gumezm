@@ -1,1 +1,2 @@
-# Hi, I'm Gumezm.
+# About
+Hi, I'm Gumezm.
